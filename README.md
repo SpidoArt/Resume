@@ -1,7 +1,6 @@
 ![Image of Sepideh_logo](https://raw.githubusercontent.com/SpidoArt/Resume/master/SM_logo_shadow.png)
 ### Sepideh Motevaselolhagh
-**Graphic designer, Illustrator**
-**Indianapolis,IN**
+**Graphic designer | Illustrator** | **Indianapolis,IN**
 _WWW.SPIDOART.COM_
 
 
