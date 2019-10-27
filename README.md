@@ -85,6 +85,3 @@ I am a self-motivated, hard working graphic designer and illustrator with a sign
  **Graphics for Advertising in Print Media** | Book of Month Magazine *(The Arts)*, No.127, *(Tehran)* 2009
 **Creativity in Advertisements** | Book of Month Magazine *(The Arts)*, No.122, *(Tehran)* 2008
 
-
-
-> Written with [StackEdit](https://stackedit.io/).
