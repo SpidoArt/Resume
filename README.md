@@ -2,7 +2,7 @@
 ### Sepideh Motevaselolhagh
 **Graphic designer, Illustrator**
 **Indianapolis,IN**
-_WWW.**SPIDOART**.COM_
+_WWW.SPIDOART.COM_
 
 
 
