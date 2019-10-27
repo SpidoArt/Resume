@@ -13,8 +13,8 @@ I am a self-motivated, hard working graphic designer and illustrator with a sign
 
 ### :diamond_shape_with_a_dot_inside: <font color='67cbd9'>EDUCATION</font>
 **Tehran University of Art** | Tehran, Iran
-	M.A. in Graphic design, *(GPA: 3.8 )* June 2009
-	B.A. in Graphic design, *(GPA: 3.9 )* February 2007
+M.A. in Graphic design, *(GPA: 3.8 )* June 2009
+B.A. in Graphic design, *(GPA: 3.9 )* February 2007
 
 ### :diamond_shape_with_a_dot_inside: <font color='67cbd9'>PROFESSIONAL EXPERIENCE</font>
  **Gannett - USA TODAY NETWORK** | Graphic designer 2019 - Present
